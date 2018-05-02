@@ -1,0 +1,1 @@
+# coinspell.github.io
